@@ -21,6 +21,6 @@ Thanks for https://forum.maxiol.com/lofiversion/index.php/t5332.html
 
 詳しくは、HPの 　
 
-https://tom2rd.sakura.ne.jp/wp/2020/07/01/post-11409/　　　
+［こちら］(https://tom2rd.sakura.ne.jp/wp/2020/07/01/post-11409/)
 
 を見てください
